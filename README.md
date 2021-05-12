@@ -7,4 +7,4 @@
 
 
 **Contact:**
-[•*Telegram*](https://t.me/birtanen)
+[•*Telegram*](https://t.me/birtanemolan)
